@@ -1,0 +1,1 @@
+# NowaHumanity-Crypto
